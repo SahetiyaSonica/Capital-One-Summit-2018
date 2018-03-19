@@ -1,1 +1,0 @@
-# Capital-One-Summit-2018
